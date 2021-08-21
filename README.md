@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Hope
+- 👀 I’m interested in art and sports
+- 🌱 I’m currently learning how to speak publically and that it's okay to share my opinion
+- 💞️ I’m looking to collaborate on basically anything 
+- 📫 How to reach me would be through email, but only if it is VERY important 
